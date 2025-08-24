@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Lee Jeonghyeon, [oo.or.id](https://oo.or.id).
+* Rayvanka Azrifany, [Linkedin](https://www.linkedin.com/in/rayvanka-azrifany/).
